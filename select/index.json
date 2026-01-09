@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "24K・マジック",
+  "base_artist": "ブルーノ・マーズ",
+  "createdAt": "2026-01-09T16:21:19.311897Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "24K Magic",
+      "artist": "Bruno Mars",
+      "has_synced": false,
+      "path": "select/pl_01_24K_Magic_Bruno_Mars.txt"
+    }
+  ]
+}
