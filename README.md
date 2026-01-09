@@ -1,0 +1,96 @@
+# ブルーノ・マーズ – 24K・マジック
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Tonight
+I just want to take you higher
+Throw your hands up in the sky
+Let's set this party off right
+*
+Players, put yo' pinky rings up to the moon
+Girls, what y'all trying to do
+24 karat magic in the air
+Head to toe soul player
+Uh look out
+Pop pop it's show time
+(Show time)
+Show time
+(Show time)
+Guess who's back again
+Oh they don't know?
+(Go tell em)
+Oh they don't know?
+(Go tell em)
+I bet they know as soon as we walk in
+(Showin up)
+Wearin' Cuban links
+(Ya)
+Designer minks
+(Ya)
+Inglewood's finest shoes
+(Whoop whoop)
+Don't look too hard, might hurt ya'self
+Known to give the color red the blues
+Ooh shit
+**
+I'm a dangerous man with some money in my pocket
+(Keep up)
+So many pretty girls around me
+And they waking up the rocket
+(Keep up)
+Why you mad, fix ya face
+Ain't my fault they all be jocking
+(Keep up)
+Players only
+Come on
+* Repeat
+Uh look out
+Second verse for the hustlas, gangstas
+Bad bitches and ya ugly ass friends
+(Ha ha)
+Can I preach?
+(Uh oh)
+Can I preach?
+(Uh oh)
+I gotta show em how a pimp get it in
+First, take your sip
+(Sip)
+Do your dip
+(Dip)
+Spend your money like money ain't shit
+(Ooh ooh)
+We too fresh
+Got to blame it on Jesus
+Hashtag blessed
+They ain't ready for me
+(Uh)
+** Repeat
+Players only
+Come on
+* Repeat
+Uh look out
+(Woooh)
+Everywhere I go they be like
+Ooh, soul player
+(Woooh)
+Everywhere I go they be like
+Ooh, soul player
+(Wooh)
+Everywhere I go they be like
+Ooh, soul player ooh
+Now, now, now, now
+Watch me break it down like
+(Uh)
+24 karat, 24 karat magic
+What's that sound
+24 karat magic, 24 karat magic
+Come on now
+24 karat, 24 karat magic
+Don't fight the feeling
+Invite the feeling
+* Repeat
+Hands up
+* Repeat
+Look out
+```
